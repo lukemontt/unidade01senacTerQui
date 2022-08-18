@@ -1,2 +1,0 @@
-# unidade01senacTerQui
-opcional
